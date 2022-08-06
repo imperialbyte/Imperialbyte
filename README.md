@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 - 🔭 I’m currently working on taking over the world
-- 🌱 I’m currently learning nothing
+- 🌱 I’m currently learning nothing but I'm starting school so I'll learn chemistry to make bombs
 - 👯 I’m looking to collaborate on nuking the world
 - 🤔 I’m looking for help with nuking the planet
 - 💬 Ask me about your dreams
